@@ -1,2 +1,2 @@
-# Yoganada_Portfolio
+# tejas_Portfolio
 ABOUT ME
